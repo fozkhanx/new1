@@ -1,1 +1,1 @@
-# new1
+https://fozkhanx.github.io/new1/
